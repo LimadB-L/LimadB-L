@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao meu perfil LimadB-L - Lucsa Lima de Brito 😁
+Lucsa Lima de Brito 😎🌐⌨️💻
 
  <div>
    <a href="https://github.com/LimadB-L">
